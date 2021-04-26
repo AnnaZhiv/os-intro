@@ -1,2 +1,0 @@
-# Laboratornay rabota
-# laboratory rabota
